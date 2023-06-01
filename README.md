@@ -1,5 +1,5 @@
 # About_me
-👋 Hi, I’m SURAJ KUMAR.
+👋 Hi, I’m SURAJ KUMAR
 
 🏫 From NIT JAMSHEDPUR.
 
